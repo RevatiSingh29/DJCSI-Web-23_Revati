@@ -1,8 +1,10 @@
 # DJCSI-Web-23_Revati
-![image](https://github.com/RevatiSingh29/DJCSI-Web-23_Revati/assets/143447751/8f42dff4-afac-425e-a89b-74dfcb4f848c)
-![image](https://github.com/RevatiSingh29/DJCSI-Web-23_Revati/assets/143447751/a61afb82-bcb9-4f47-8fcc-b6cec7407cfc)
-![image](https://github.com/RevatiSingh29/DJCSI-Web-23_Revati/assets/143447751/271d5db7-36a4-44c1-8e04-070c797a7a64)
-![image](https://github.com/RevatiSingh29/DJCSI-Web-23_Revati/assets/143447751/5423dd1e-bbe9-44cb-a562-4eb9acebcb79)
-![image](https://github.com/RevatiSingh29/DJCSI-Web-23_Revati/assets/143447751/b3faa131-97e0-4453-a2ad-5e8c49d8a5d3)
-ss files uploaded
+![image](https://github.com/RevatiSingh29/DJCSI-Web-23_Revati/assets/143447751/62e2d1cd-02be-46d4-ba61-39b8409be06f)
+![image](https://github.com/RevatiSingh29/DJCSI-Web-23_Revati/assets/143447751/4f557402-dfb4-4325-9569-dfa1da3a4b08)
+![image](https://github.com/RevatiSingh29/DJCSI-Web-23_Revati/assets/143447751/bc4ddee5-f850-4120-9d0d-3f1bb7488220)
+![image](https://github.com/RevatiSingh29/DJCSI-Web-23_Revati/assets/143447751/08e24c10-7b3a-4378-b59c-ae0a7e196cfe)
+
+
+
+
 
